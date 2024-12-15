@@ -13,6 +13,7 @@ i also have too many interests and im annoying as fuck so now i have a good plac
 on this blog you may find posts about:
 - kpop (yes i'm that annoying)
 - gundam/gunpla
+- crochet/other crafting
 - video games
 - anime/kdramas/bls&gls
 - recipes
