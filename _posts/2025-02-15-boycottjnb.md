@@ -1,7 +1,10 @@
 ---
 layout: post
 title: "#BoycottJNB"
-date: 2025-01-13 18:05 -0800
+date: 2025-02-15 18:27 -0800
+category: [kpop]
+tags: [kpop]
+description: 80 pages of receipts against J&B Entertainment
 ---
 
 # BOYCOTT J&B ENTERTAINMENT
